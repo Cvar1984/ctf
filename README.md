@@ -20,3 +20,4 @@ Sebuah tantangan terbuka untuk dispenser maha tamvan dengan segala arogan nya yg
 
 # Bye noob
 
+![SS](Screenshot_2020-05-06-13-31-26-582_com.android.chrome.jpg)
